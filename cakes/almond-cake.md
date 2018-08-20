@@ -11,7 +11,7 @@
 - 1 bag of baking powder
 - 4 tablespoon of cream
 
-Mix everything together and put on a greased cookie sheet for 20 minutes at 175 degrees celsius.
+Mix everything together and put it on a greased cookie sheet for 20 minutes at 175 degrees celsius.
 
 
 ## Topping
